@@ -26,8 +26,8 @@ Play Snow Rider 3D Unblocked even if your network has restrictions. Perfect for 
 
 ## Game Link
 
-Play Snow Rider 3D Unblocked here: [https://unblocked-games.gamesroid.com/unblocked/snow-rider-3d/](https://unblocked-games.gamesroid.com/unblocked/snow-rider-3d/)
+Play Snow Rider 3D Unblocked here: [https://unblocked-games.gamesroid.com/unblocked/snow-rider-3d/](https://unblocked-games.gamesroid.com/snow-rider-3d/)
 
 ## Copyright Notice
 
-Games remain the property of their respective owners. For anything copyright or other thing you can contact use here: [https://unblocked-games.gamesroid.com/contact/](https://unblocked-games.gamesroid.com/contact/) we’ll get back to you within 24 hours. 😊
+Games remain the property of their respective owners. For anything copyright or other thing you can contact use here: [https://unblocked-games.gamesroid.com/contact/](https://-games.gamesroid.com/contact/) we’ll get back to you within 24 hours. 😊
